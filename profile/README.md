@@ -4,4 +4,4 @@
 
 ### BlastX® Series
 
-#### BlastX V2® Integrated Speakers for Electrum Aurora®.
+#### BlastX V2® Integrated Surround Sound Speakers for Electrum Aurora®.
